@@ -19,7 +19,7 @@ Edit freely across unlimited tracks with complete control, precision, and the po
 # ✅ Partnership and cooperation:
   
  ### Terms of Reference
- [💾 Download](https://www.dropbox.com/s/65y2hoyt45o0e1e/Promotional%20materials.zip?dl=0)
+ [💾 Download](https://www.dropbox.com/s/65y2hoyt45o0e1e/Promotional%20materials.zip?dl=1)
 
 ### Promotional materials
  [💾 Download](https://www.dropbox.com/s/65y2hoyt45o0e1e/Promotional%20materials.zip?dl=1)
